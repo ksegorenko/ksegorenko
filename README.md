@@ -70,5 +70,5 @@ and take responsibility for features and outcomes.
 
 ## 📫 Contact
 
-Email: your_email  
-Telegram / LinkedIn: your_link
+Email: kseniaegorenko66949@gmail.com
+Telegram: https://t.me/kegorenko
